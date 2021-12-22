@@ -1,1 +1,1 @@
-# chung toi bi tu ki va bi tri
+# Chúng tôi bị trĩ và tự kĩ :sunglasses:
