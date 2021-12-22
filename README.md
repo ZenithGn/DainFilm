@@ -1,1 +1,1 @@
-# chung toi bi tu ki va bi tr
+# chung toi bi tu ki va bi tri
